@@ -9,5 +9,5 @@ Besides the text books (below), students will also need to have dependable inter
   * Hendrickson's Compact edition, smaller, soft cover: ISBN-13: 9781598561630 Cost: $51.96 (down from 64.95) at Cokesbury.com
 2. Brown, Francis, S. R. Driver, Charles A. Briggs, Edward Robinson, Wilhelm Gesenius, and Maurice A. Robinson. *The New Brown, Driver, Briggs, Gesenius Hebrew and English Lexicon: With an Appendix Containing the Biblical Aramaic.* Peabody: Hendrickson Publishers, 1996. ISBN-13: 9781565632066 (hardcover). Cost: $27.96 (down from 34.95) at Cokesbury.com.
 3. Seow, C.L. *A Grammar for Biblical Hebrew.* Rev ed. Nashville: Abingdon, 1995. ISBN-13: 9780687157860 (hardcover). Cost: $25.20 (down from 40.00) at Cokesbury.com.
-4. Green, Jennifer S., G. Brooke Lester, Joseph F. Scrivner, and C. L. Seow. *Handbook to a Grammar for Biblical Hebrew.* Nashville: Abingdon Press, 2005.
+4. Green, Jennifer S., G. Brooke Lester, Joseph F. Scrivner, and C. L. Seow. *Handbook to a Grammar for Biblical Hebrew.* Nashville: Abingdon Press, 2005. ISBN-13: 9780687008346. Cost: $16.00 at Cokesbury.com.
 
